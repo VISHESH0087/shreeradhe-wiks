@@ -1,4 +1,4 @@
-# shreeradhe-wik
+# shreeradhe-wiks
 Shreeradhe Cotton Wiks
 Home About Us Services Blog Contact
 Welcome to Shreeradhe Cotton Wiks
