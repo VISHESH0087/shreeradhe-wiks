@@ -11,9 +11,10 @@ We are manufacturing cotton wiks, long and round.
 
 Shree Radhe Industry Cotton Wiks Packaging
 Our Services
-Cotton Processing
-Product Development
-Quality Assurance
+
+1.Cotton Processing
+2.Product Development
+3.Quality Assurance
 Logistics and Distribution
 Our services also include online delivery on platforms like Flipkart and Amazon.
 
@@ -27,6 +28,5 @@ The Future of Sustainable Cotton
 Learn about trends in sustainable cotton production.
 
 Read more
-Contact Us
-Phone: 8742905242
+Contact Us Phone: 8742905242
 
